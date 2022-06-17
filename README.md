@@ -8,7 +8,9 @@ Navigation:
 
 [*Cell Strucutre*](https://gizmos.explorelearning.com/index.cfm?method=cResource.dspDetail&resourceID=450)
 
-[*Cell Strucutre*](https://gizmos.explorelearning.com/index.cfm?method=cResource.dspDetail&resourceID=450)
+[*Code*](https://studio.code.org/s/applab-intro/lessons/1/levels/1)
+
+[*SS Nearpod*](https://nearpod.com/t/social-studies/9th-grade/assessment-worldwide-globalization-L32679278)
 
 [*Khan Academy MAP Testing*](https://www.khanacademy.org/math/mappers)
 
