@@ -16,33 +16,33 @@ Navigation:
 
 [*Gizmo Digestive System*](https://www.gizmos.explorelearning.com/index.cfm?method=cResource.dspView&resourceID=1050)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER011.PDF](Chapter 1)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER011.PDF] (Chapter 1)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER021.PDF](Chapter 2)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER021.PDF] (Chapter 2)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER031.PDF](Chapter 3)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER031.PDF] (Chapter 3)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER041.PDF](Chapter 4)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER041.PDF] (Chapter 4)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER051.PDF](Chapter 5)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER051.PDF] (Chapter 5)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER061.PDF](Chapter 6)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER061.PDF] (Chapter 6)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER071.PDF](Chapter 7)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER071.PDF] (Chapter 7)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER081.PDF](Chapter 8)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER081.PDF] (Chapter 8)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER091.PDF](Chapter 9)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER091.PDF] (Chapter 9)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER101.PDF](Chapter 10)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER101.PDF] (Chapter 10)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER111.PDF](Chapter 11)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER111.PDF] (Chapter 11)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER12.PDF](Chapter 12)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER12.PDF] (Chapter 12)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER131.PDF](Chapter 13)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER131.PDF] (Chapter 13)
 
-[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER141.PDF](Chapter 14)
+[https://www.lakelandschools.org/schools/lakelandhigh/Math/CHAPTER141.PDF] (Chapter 14)
 
 [*ZLogin*](https://zombsroyale.io/user/login/google?csrf=3m8l10C2BdWkGKb8) [*Zombsroyale*](https://zombsroyale.io)
 
